@@ -1,5 +1,5 @@
  **KUTUMBH CONNECT**
--> If you're residing in a hostel and want to stay updated on family functions — here is your solution: KUTUMBH CONNECT.
+-> If you're residing in a hostel and want to stay updated on family functions and much more — here is your solution: KUTUMBH CONNECT.
    Kutumbh Connect is a web-based family connection platform designed to bring relatives and family members closer — no matter the distance. 
    It allows users to share memories, view relationships, track milestones, and stay updated on family achievements — all in one centralized digital space.
    
